@@ -1,0 +1,1 @@
+HMDA1scoming!  is the password for document which is password protected
